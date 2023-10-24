@@ -1,4 +1,4 @@
-# The Syrian Goddess,
+# The Syrian Goddess;
 
 ## Being a Translation of Lucian's _De Dea Syria_, with a Life of Lucian.
 

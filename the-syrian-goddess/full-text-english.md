@@ -224,6 +224,10 @@ If any doubt remained as to the historical origins of the cult at Hierapolis, it
 
 *) See our Fig. 5, and frontispiece, No. 2. Publ. _Num. Chron._, p. 105, No. 5. _Choix de Mon. Grecq_, pl. 11. 24; _Rev. Arch._ (1904), 2., pl. 240, Fig. 24 (photo).
 
+[Fig. 5a. --- Atargatis, the Syrian Goddess. Coin of Hierapolis, Date B. C. 332. (Now in the Bibl. Nationale, Paris.) Scale 3:2.]()
+
+[Fig. 5b. --- Abd-Hadad, the Priest-King. Coin of Hierapolis, Date B. C. 332. (Now in the Bibl. Nationale, Paris.) Scale 3:2.]()
+
 In short, the words of Macrobius, which corroborate and amplify Lucian's description of the central cult at Hierapolis, are strictly apposite to the chief Hittite god and goddess. The coins of the site illustrate the same motive; and on one of the earliest of them features of Hittite costume are found still surviving four hundred years after the final overthrow of the Hittite States in Northern Syria.
 
 J. G.

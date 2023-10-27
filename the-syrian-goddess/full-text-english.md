@@ -592,17 +592,29 @@ At this lake great assemblies meet, and these are called descents into the lake 
 
 But the greatest of these sacred assemblies are those held on the sea coast.* About these, however, I have nothing certain to say. I was never present at their celebrations, nor did I undertake the journey thither; but I did see what they do on their return, and I will at once tell you. Each member of the assembly carries a vessel full of water. The vessels are sealed with wax; those who carry the water do not unseal the vessels and then pour out the water; but there is a certain holy cock* who dwells hard by the lake. This bird, on receiving the vessels from the bearers, inspects the seal, and after receiving a reward for this action he breaks the thread and picks away the wax, and many minae are collected by the cock by this operation. After this the bearers carry the water into the temple and pour it forth, and they depart when the sacrifice is finished.
 
+*) On the local use of the word "sea," meaning thereby the Euphrates, see note 23. On the further subject of the narrative, _cf._ §§ 13, 36. It is of interest to notice that Pliny (_Nat. Hist._ 31. 37) describes a method of filtering sea water into empty sealed vessels.
+
+*) Ἀλεκτρυὼν ἱρός. The narrative is unintelligible unless we suppose that the words by allusion or textual change signify some special priestly office. Thus Blunt (_Works of Lucian_, London: Briscoe, 1711, p. 267) translates "a sacred cock, or priest, called Alectryo." Is it possible that the word in this sense was in common vogue, on the analogy of the Latin _Gallus_, a cock? (_Cf._ an inscription on an urn in the Lateran Museum at Rome, cited by Frazer, _op. cit._ p. 233, on which the cock is used as emblem of the Attis-priest, with a punning reference to the word.) Belin de Ballu, in his translation (Paris, 1789), 5. 178, following Paulmier de Grentruéuil, unhesitatingly substitutes Γάλλος, and translates accordingly.
+
 ### 49. Festival of the Pyre. Customs and Institutions.
 
 The greatest of the festivals that they celebrate is that held in the opening of spring; some call this the Pyre, others the Lamp. On this occasion the sacrifice is performed in this way. They cut down tall trees and set them up in the court; then they bring goats and sheep and cattle and hang them living to the trees; they add to these birds and garments and gold and silver work. After all is finished, they carry the gods around the trees and set fire under;* in a moment all is in a blaze. To this solemn rite a great multitude flocks from Syria and all the regions around. Each brings his own god and the statues which each has of his own gods.
+
+*) In this festival of the Pyre at Heliopolis one or two details may profitably be noticed. The "tall trees" suggest the pine, sacred to Attis. (_Cf., inter alia_, Farnell, _Cults_, p. 645, and Frazer, _op. cit._, p. 222.) It is possible that in the sculptures of Boghaz-Keui the objects on which the high priest stands (_L. H._, pl. 68.) are indeed fir-cones. Goats and sheep we have seen led to sacrifice at Eyuk; the former animal is frequently represented in association with the Hittite chief god, and was no doubt sacred to him. "Cattle" indicate the bull, the emblem of the great god, and the cow with which his consort might be reciprocally identified. _Cf._ Pausanias (11., 3. 7), where the bull and cow are seen to be sacred to Zeus and Hera respectively; and compare especially the details of the Dædala with this holocaust. The hanging of garments or shreds of them on trees near sacred places, or trees themselves, is a common practice in the East and in Egypt to-day. (_Cf._ also Rob.-Smith, _op. cit._, p. 335.) In the last words of the paragraph it is significant that no special mention is made of a goddess in connection with this rite.
 
 ### 50. The Galli.
 
 On certain days a multitude flocks into the temple, and the Galli in great numbers, sacred as they are, perform the ceremonies of the men and gash their arms and turn their backs to be lashed.* Many bystanders play on the pipes the while many beat drums; others sing divine and sacred songs. All this performance takes place outside the temple, and those engaged in the ceremony enter not into the temple.
 
+*) _Cf._ the rites surviving in the worship of Kybele and Attis in Rome. For a description and bibliog., see Cumont, _op. cit._, ch. 3., Asia Minor, p. 46 ff., and Frazer, _op. cit._, p. 233.
+
 ### 51. Their Initiation Ceremonies.
 
 During these days they are made Galli. As the Galli sing and celebrate their orgies, frenzy falls on many of them and many who had come as mere spectators afterwards are found to have committed the great act. I will narrate what they do. Any young man who has resolved on this action, strips off his clothes, and with a loud shout bursts into the midst of the crowd, and picks up a sword from a number of swords which I suppose have been kept ready for many years for this purpose. He takes it and castrates himself* and then runs wild through the city, bearing in his hands what he has cut off. He casts it into any house at will, and from this house he receives women's raiment and ornaments.* Thus they act during their ceremonies of castration.
+
+*) On this custom, which is specially characteristic of the worship of the goddess, see, _inter alia_, Frazer, _op. cit._, p. 224; Farnell, _Greece and Babylon_, pp. 256, 257; also our Introduction.
+
+*) _Cf._ § 15, above, n. 7. On the general aspect of this custom, see, especially, Frazer, _op. cit._, Appendix 4. p. 428.
 
 ### 52. Their Burial.
 
@@ -616,9 +628,22 @@ The laws which they observe are the following: Anyone who has seen a corpse may 
 
 They sacrifice bulls and cows alike and goats and sheep;* pigs alone, which they abominate, are neither sacrificed nor eaten. Others look on swine without disgust, but as holy animals.* Of birds the dove seems the most holy to them,* nor do they think it right to harm these birds, and if anyone have harmed them unknowingly they are unholy for that day, and so when the pigeons dwell with the men they enter their rooms and commonly feed on the ground.
 
+*) No actual act of sacrifice is represented in Hittite art, though at Eyuk and Malâtia goats and rams are seen led to the altar of the god. The general subject of burnt sacrifice and holocausts among the Semites is discussed fully by Rob.-Smith, _op. cit._, 10. 11., and numerous special rites of extreme interest are described by Frazer, _op. cit._ On the sacred animals of Asia Minor, see also Ramsay, _Relig. of Asia Minor, op. cit._, pp. 114, _etc._
+
+*) On the sanctity and abhorrence of the pig, see especially, Ramsay, _op. cit._ p. 115 b, and _Hist. Geog. of Asia Minor_, p. 32, where he points out that the Halys River divided these two points of view. See also Robertson-Smith, _op. cit._ pp. 153, 392, n., 448; and the discussion of his theory of Adonis as a swine-god by Farnell, _Cults_, p. 645. For the swine in connection with the Cult of Set in Egypt, _cf._ Newberry, in _Klio_, 12. (1912), p. 397 ff.
+
+*) _Cf._ also § 16. This statement is confirmed by Xenophon, _Anabasis_, 1. 4. 9. According to Ælian (_Nat. Ann._ 4. 2), the dove was an especially sacred companion to Astarte, and this is borne out by archaic clay figurines of the goddess from Phœnicia, Asia Minor, Rhodes, Delos, Athens and Etruria. These are ascribed to "Aphrodite" by Fürtwangler (Roscher's _Lexikon f. Griech. u. Röm. Mythologie_, p. 410, _q. v._); but are indistinguishable as to character and provenance from the original deity. (_Cf._ also Ed. Meyer, in the same, art. Astarte.) In Babylonian and Assyrian art and mythology the bird does not seem to appear in the same inseparable association with Ishtar, though we have the suggestive passage: "Like a lonely dove, I rest" (Pinches, _op. cit._, col. 3. ll. 1, 2). On this point Mr. L. W. King writes: "In the earlier periods there is no evidence that a bird was associated with Ishtar, and I have little doubt that the association was a comparatively late addition to her cult. Of course the myth of the Allatu bird is early, but can hardly be connected with the symbolic or votive bird under her Phœnician form" (Letter dated Sept. 7, 1912). Diodorus relates how the child Semiramis was fed by doves, and how eventually she took flight to heaven in the appearance of this bird.  
+In Hittite art of Asia Minor, however, the bird appears in association with the enshrined Goddess-mother, at Yarre (_Jour. Hell. Stud._ 19. fig. 4), at Fraktin (Fig. 7), and in two carvings from Marash (_L. H._, pp. 119, 151, 164).  
+In glyptic art the evidence of association is confirmatory (see Hayes Ward, _Seal Cylinders of Western Asia_, pp. 293, _etc._, especially Nos. 898, 904, 908, 943). With the naked goddess, who may be of Syrian origins (_ibid._ p. 162), and is found represented on a sculpture of Carchemish (_L. H._, p. 128), but not elsewhere on Hittite monuments, the bird appears only sporadically.  
+Among the Semites the pigeon was peculiarly sacred (Robertson-Smith, _op. cit._ p. 294), and sacrificed only on special occasions (_ibid._ p. 219; _cf._ also Leviticus 19. 4, 49; Numbers, 6. 10). The sacred character of the bird does not seem to survive in any form.
+
 ### 55. Tonsure and other Customs of Pilgrims.
 
 I will speak, too, about those who come to these sacred meetings and of what they do. As soon as a man comes to Hierapolis he shaves his head and his eyebrows;* afterwards he sacrifices a sheep* and cuts up its flesh and eats it; he then lays the fleece on the ground, places his knee on it, but puts the feet and head of the animal on his own head and at the same time he prays that the gods may vouchsafe to receive him, and he promises a greater victim hereafter. When this is performed he crowns his head with a garland and the heads of all those engaged in the same procession. Starting from his house he passes into the road, previously bathing himself and drinking cold water. He always sleeps on the ground, for he may not enter his bed till the completion of his journey.
+
+*) _Cf._ § 60.
+
+*) _Cf._ especially Rob.-Smith, _op. cit._ p. 477 ff.
 
 ### 56. Tonsure and other Customs of Pilgrims.
 
@@ -628,17 +653,25 @@ In the city of Hierapolis a public host receives him, suspecting nothing, for th
 
 They sacrifice victims not in the temple itself, but when the sacrificer has placed his victim at the altar and poured a libation* he brings the animal home alive, and returning to his own house he slays his victim and utters prayers.
 
+*) The libation is a feature of Hittite worship represented on several sculptures, _e. g._, at Fraktin and at Malâtia (see Fig. 1, p. 5). At the latter place live animals (rams) are shown in the sculpture (_L. H._, pl. 44.) behind the priest, being led by an attendant. This is not shown in our illustration, in which also the Hittite hieroglyphics are omitted from the field for the sake of clearness. These sculptures have been lately removed, it is reported, to Constantinople.
+
 ### 58. Human Sacrifice.
 
 There is also another method of sacrifice, as follows: They adorn live victims with ribbons and throw them headlong down from the temple's entrance, and these naturally die after their fall. Some actually throw their own children down, not as they do the cattle, but they sew them into a sack and toss them down, visiting them with curses and declaring that they are not their children, but are cows.*
+
+*) The special character of this sacrifice is strongly suggestive of a totemistic influence. On the general aspect of human sacrifice among the Semites, _cf._ Rob.-Smith, _op. cit._, pp. 371, 464. On human sacrifice in the Cult of Dionysus, _cf._ Frazer, _op. cit._, p. 332. Children were sacrificed to Moloch, who was identified with Cronos, an original deity of vegetation (_cf._ Farnell, _Cults_, p. 28, n.). Attempts have been made (_cf._ Dussaud, _Rev. Arch._, _loc. cit._, ap. Movers; Six, _Rev. Num._, _loc. cit._) to identify the god of Hierapolis with Cronos. While we cannot accept the theory, this field of enquiry is attractive; and the suggested identity might arise in myth by grouping the god as father of the goddess's son in a natural triad.
 
 ### 59. Tattoo.
 
 They all tattoo themselves --- some on the hands and some on the neck --- and so it comes that all the Assyrians bear stigmata.*
 
+*) _Cf._ Pliny, _Nat. Hist._, 6. 4, and 22. 2. On this subject, _cf._ Rob.-Smith, _op. cit._, p. 334, note 1. In the Sudan, according to Bruce, some of the tribes tattooed their stomachs, sides and backs, as with fish-scales. Professor Strong reminds us that there have been found a number of bodies of Nubians of the time of the Middle Empire (_c._ 2000 B. C.) with definite tattooing; and the patterns pricked upon the skin of these desiccated bodies were identical with those painted on the dolls buried with them. _Cf._ Dr. Elliot Smith, _The Ancient Egyptians_, p. 56.
+
 ### 60. Sacrifice of Hair.
 
 They have another curious custom, in which they agree with the Trœzenians alone of the Greeks. I will explain this too. The Trœzenians have made a law for their maidens and youths alike never to marry till they have dedicated their locks to Hippolytus; and this they do. It is the same at Hierapolis. The young men dedicate the first growth on their chin, then they let down the locks of the maidens, which have been sacred from their birth; they then cut these off* in the temple and place them in vessels, some in silver vessels, some in gold, and after placing these in the temple and inscribing the name on the vessel they depart. I performed this act myself when a youth, and my hair remains still in the temple, with my name on the vessel.
+
+*) See also § 55, where a first act of the pilgrim is to shave his head; and § 6, where it appears that at Byblos the female locks could be sacrificed as an alternative to offering their own persons. At Trœzene, according to Pausanias (32.), the custom was to sacrifice the hair before marriage. In Catullus, Ode 66., Berenice dedicates her hair to Venus. On the general question, see Robertson-Smith, _op. cit._, p. 329.
 
 # Appendix.
 
@@ -660,6 +693,8 @@ Pocock's Description of the East. Vol. 2., Pt. 1. (1745); pp. 166 and 167.
 
 ...Bambouch, commonly called by the Franks Bambych, and by the ancients Hierapolis, which was the Greek name that was given it by Seleucus; it was called also Bambyce, which seems to be the Syrian name still retained; and it is very remarkable that Hierapolis in Asia Minor has much the same name, being called Pambouk Calasi (the cotton castle). The Tables make it twenty-four miles distant from Zeuma on the Euphrates and from Ceciliana: They place it also seventy-two miles from Berya, though this is not above fifty from Aleppo. One of the Syrian names of this place was Magog;* which was a city of the Cyrrhestica, and is situated at the south end of a long vale, which is about a quarter of a mile broad, watered with a stream that is approached by the aqueducts of Bambych; and, to preserve the water from being wasted, it passes through this vale in an artificial channel or aqueduct which is built of stone on a level with the ground. The form of this site was irregular; some parts of the walls which remain entire, are nine feet thick, and above thirty feet high; they are cased with hewn stone both inside and out, and are about two miles in circumference; there was a walk all round on top of the walls, to which there is an ascent by a flight of stairs, which are built on arches; the wall is defined by towers on five sides, at the distance of fifty paces from each other, and there is a low fosse without the walls. The four gates of the city are about fifteen feet wide, and defended by a semi-circular tower on each side; the water that supplied the town, as I was informed, comes from a hill about twelve miles to the south, and the city being on the advanced ground, the water runs in a channel, which is near twenty feet below the surface of the earth, and in several parts of the city there are holes down to the water about five feet wide, and fifteen long, with two stones across, one about five feet, the other about ten feet from the top, in order, as may be supposed, to facilitate the descent of the water; it is probable that they had some machines to draw up the water at these holes. In the side of one of them I saw a stone about four feet long, and three wide, on which there was a relief of two winged persons holding a sheet behind a woman a little over her head; they seem to carry her on their fishy tails which join together, and were probably designed to represent the Zephyrs, carrying Venus to the sea.
 
+*) Caele habet --- Bambycen, quae alio nomine Hierapolis vocatur, Syris vero Magog. Ibi prodigiosa Atargatis, Graecis autem Derceto dicta, colitur. Plin. _Nat. Hist._ 5. 19.
+
 At the west part of the town there is a dry bason, which seemed to have been triangular; it is close to the town wall; at one corner of it there is a round building which seems to have extended into a bason, and probably was designed in order to behold with greater conveniency some religious ceremonies or public sports. This may be the lake where they had sacred fishes that were tame.
 
 About two hundred paces within the east gate there is a raised ground, on which probably stood a temple of the Syrian goddess Atargatis, thought to be the same as Ashteroth of the Sidonians, and Cybele of the Romans, for whose worship this place was so famous. I conjectured it to be about two hundred feet in front. It is probable that this is the high ground from which they threw people headlong in their religious ceremonies, and sometimes even their own children, though they must inevitably perish. I observed a low wall running from it to the gate, so that probably it had such a grand avenue as the temple at Gerrhae; and the enclosure of the city is irregular in this part, as if some ground had been taken in after the building of the walls to make that grand entrance; it is probable that all the space north of the temple belonged to it. A court is mentioned to the north of the temple, and a tower likewise before the temple, which was built on a terrace twelve feet high. If this tower was on the high ground I mentioned, the temple must have been west of it, of which I could see no remains; it possibly might have been where there are now some ruins of a large building, which seems to have been a church with a tower; to the west of which there are some ruinous arches, which might be part of a portico. It is said that not only Syria, Cilicia, and Cappadocia, contributed to the support of this temple, but even Arabia, and the territories of Babylon: To the west of the town there is a high ground, and some burial places; and so there are also to the north-east, where I saw inscriptions in the oriental languages, and several crosses. At a little distance from the north-east corner of the town there is a building like a church, but within it there is some Gothic work, such as is seen in ancient mosques; and there is a room on each side of the south end; the whole is ruinous, but very strongly built, and they call it the house of Phila.
@@ -672,9 +707,33 @@ By Colonel Chesney. London, 1850. Vol. 1., Ch. 18., pp. 420 and 421.
 
 [Nine miles below the mouth of the Sajur, the fine Saracenic structure of Kal-at-en-Nejm commands the remains of the great Zeugma leading to Seroug, Haran, _etc._, and 11 miles directly south by west from thence on four hills, are the extensive remains of the castle and town of Kara Bambuche, or Buyuk Munbedj,* which contains some fine excavations near the river, and also a Zeugma, but in a more dilapidated state, being without the slopes which, when passing at Kal-at-en-Nejm, served for landing places at different heights of the river.]
 
+*) Jisr Munbedj, two days from Haran. Jaubert's _Edrisi_, p. 155, tome 6.; _Recueil de Voyages_, _etc._ Paris, 1840.
+
 Sixteen miles west by south of the latter, and 11 1/2 miles south-west of the former passage, at about 600 feet above the river Euphrates, the ruins of the Magog of the Syrians occupy the centre of a rocky plain, where, by its isolated position, the city must not only have been deprived of running water, but likewise of every other advantage which was likely to create and preserve a place of importance. Yet we know that the Syrian city of Ninus Vetus* flourished under the name of Bambyce* and subsequently of Hierapolis,* or the Sacred City of the Greeks,* and that it contained the rich temple which was plundered by Crassus;* finally it bore the name of Munbedj* or Bambuche, and had a succession of sovereigns in the 5th century of the Hijrah.* The ancient city was near the eastern extremity of Commagene, or Euphratensis, which had Samosat at the opposite extremity.*
 
+*) Ammian. _Mar._, 14., 100. 8.
+
+*) The Syrian name of the city, which the Greeks afterwards called Hierapolis. Strabo, 16., p. 747.
+
+*) Ammian. _Mar._, 14., 100. 8.
+
+*) Hierapolis, or Magog, in Syriac. Plin. lib. 5., 100. 23.
+
+*) Plutarch in Crassus.
+
+*) It was first built by the Persians, who had a fine temple there. Muhammed Ibn Sepahi's _Clear Knowledge of Cities and Kingdoms_.
+
+*) Des Guignes, _His. des Huns_, tome 2., p. 215.
+
+*) Amm. _Mar._ 14., 100. 8.
+
 Some ruined mosques and square Saracenic towers, with the remains of its surrounding walls and ditch, marked the limits of the Muslim city; within which are four large cisterns, a fine sarcophagus, and, among other ancient remains the sculptured ruins of an acropolis, and those of two temples. Of the smaller, the enclosure and portions of seven columns remain; but it seems to possess little interest compared with the larger, which may have been that of the Assyrian and Phœnician Astarte,* or Astroarche (queen of stars), which afterwards became the Syrian Atargatis,* or Venus Decerto.* Amongst the remains of the latter are some fragments of massive architecture, not unlike the Egyptian, and 11 arches from one side of a square paved court, over which are scattered the shafts of columns and capitals displaying the lotus.
+
+*) There were temples of this goddess in Palestine. Jos. _Ant._, lib. 5., 100. 14. 8; at Tyre, _ibid._; against Apion, lib. 1., s. 19; and at Sidon, 1. Kings, 100. 5., and 5. 33.
+
+*) Strabo, 16., p. 748.
+
+*) Herod., lib. 1., 100. 105., mentions the temple of Venus at Askalon, which, in Diod. _Sic._, lib. 2., is called that of Decerto. There was another temple of Venus, or Atargatis, at Joppa. Plin., lib. 5., 100. 13. and 23.
 
 A little way westward of the walls there is an extensive necropolis, which contains many Turkish, with some Pagan, Seljukian, and Syriac tombs; the last having some almost illegible inscriptions in the ancient character.
 

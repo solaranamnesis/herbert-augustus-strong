@@ -12,17 +12,17 @@
 
 ---
 
-# [Editor's Preface]()
+# [Editor's Preface](#editors-preface-1)
 
-# [Introduction]()
+# [Introduction](#introduction-1)
 
-# [Life of Lucian.]()
+# [Life of Lucian.](#life-of-lucian-1)
 
-# [Lucian's "_De Dea Syria_."]()
+# [Lucian's "_De Dea Syria_."](#lucians-de-dea-syria-1)
 
-# [Appendix.]()
+# [Appendix.](#appendix-1)
 
-# [Bibliography.]()
+# [Bibliography.](#bibliography-1)
 
 ---
 

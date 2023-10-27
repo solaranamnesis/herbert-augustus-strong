@@ -26,6 +26,8 @@
 
 ---
 
+[Frontispiece. --- The Syrian Goddess, on Coins of Hierapolis. _Cf. Figs. 5. 7._ (Scale 3:4.).](https://cdn.solaranamnesis.com/HAStrong/strong-01.png)
+
 To the Rev. Professor A. H. Sayce, _Magistro Discipulus._
 
 # Editor's Preface
@@ -96,9 +98,9 @@ Their chief deity was a God omnipotent, the "Lord of Heaven,"* with lightning in
 
 *) _L. H._, p. 239. That this is a divine marriage scene is generally accepted (Frazer, _op. cit._, p. 108; Farnell, _Greece and Babylon_, p. 264; _cf._ Perrot and Chipiez, _Histoire de l'Art_, 4., p. 630), but it is the recognition that the chief god concerned is not a Tammuz or Attis (as supposed by Frazer, _op. cit._ p. 105; Ramsay, _Journ. Roy. A. S._, 1885, pp. 113-120, and others), but the Hittite "Zeus," a form of Teshub or Hadad, that is new in our interpretation and important for our present subject. On the general question of the _Hieros Gamos_, _cf._ Daremberg, Saglio and Pottier, _Dictionnaire des Antiquités_, 1904, p. 177; Farnell, _Cults_, 1., p. 184 _ff._; Pausanias, 9., 3; and Frazer, _The Golden Bough_ (1890), pp. 102-103. An oriental version of the rite is suggested in the legend recorded by Ælian (_Nat. Animalium_, 12. 30) that Hera bathed in the Chaboras, a tributary of the Euphrates, after her marriage with Zeus. _Cf._ the marriage of Nin-gir-su and Baü in Babylonian mythology (Thu. Dangin, _Vorderas Bibl._, 1., p. 77; _cf._ Jastrow, _Relig. of Bab. and Assyr._, 1898, p. 59). The details of the scene seem to indicate that the shrine is essentially that of the goddess (_cf._ Kybele as a goddess of caves, Farnell, _Cults_, 3., p. 299, and Ramsay, _Relig. of Anatolia_, in Hastings' _Dict. Bibl._, extra vol., p. 120), and that the image of the god was carried thereto for this ceremony. (_Cf._ our note 48, p. 77, also Farnell, _Greece and Babylon_, p. 268). It is of interest to recall Miss Harrison's arguments, _Classical Rev._ (1893), p. 24, that Hera had a husband previous to Zeus; also the association of Dodonian Zeus (Homer, _Il._, 16. 233; _Od._, 14. 327, 16. 403; Hesiod ap. Strabo, p. 328) with the Earth-Mother in Greece (_cf._ Farnell, _Cults_, 1., p. 39).
 
-[Fig. 1. --- The Hittite "Hadad" at Malâtia.]()
+[Fig. 1. --- The Hittite "Hadad" at Malâtia.](https://cdn.solaranamnesis.com/HAStrong/strong-02.png)
 
-[Fig. 2. --- The Chief Hittite God and Goddess at Boghaz-Keui.]()
+[Fig. 2. --- The Chief Hittite God and Goddess at Boghaz-Keui.](https://cdn.solaranamnesis.com/HAStrong/strong-03.png)
 
 With the goddess there is in these sculptures the image of the youth* who, in the original tradition, was her necessary companion, representing clearly, in this instance, her offspring, the fruits of the earth.* Indeed a later sculpture at Ivrîz seems to show this god, changed in form but still recognizable,* as the patron of agriculture, with bunches of grapes in one hand and ears of corn in the other. Even at Boghaz-Keui, this youthful deity is already accorded a smaller adjacent sanctuary,* devoted to his cult alone. Following the great deities are many other figures, forming, as it were, two groups. Accompanying the god are the minor gods of the Hittite States, who, for the most part, are similar to himself in general appearance.* They are followed by priests and men who are taking part in the celebration, in which it would appear revelry and dancing were not omitted. In the train of the goddess, who like her son stands upon the back of a lioness, there follow two other goddesses of smaller size, but similar to herself in appearance, grouped together on a double-headed eagle.* These are followed by a number of figures of priestesses clad like the goddess; and, surveying all, the noble figure of the King-Priest clad in a toga-like garment, and holding a curving lituus, the emblem of his sacred office.*
 
@@ -116,7 +118,7 @@ With the goddess there is in these sculptures the image of the youth* who, in th
 
 *) _L. H._, pl. 68. On his head a cap (_cf._ Lucian, § 42). His kingly rank is denoted by the winged disc surmounting his emblems.
 
-[Fig. 3. --- The Hittite Bull-God at Eyuk.]()
+[Fig. 3. --- The Hittite Bull-God at Eyuk.](https://cdn.solaranamnesis.com/HAStrong/strong-04.png)
 
 That which seems to us in our present enquiry the chief feature of these sculptures is that the worship is clearly common to the god and the goddess, who occupy the leading positions in equal prominence.* This interpretation is supported substantially by sculptures which decorate the main entrance of the neighbouring Hittite city of Eyuk. The corner stone on the right represents the goddess seated,* receiving the worship of her priests; while the corresponding corner stone on the left shows a Bull-God on a pedestal,* with the High Priest and Priestess ministering at his altar. The Bull we have seen to be identified with the chief Hittite deity, which he seems here to replace.
 
@@ -220,7 +222,7 @@ Instructive as this coin is, it yields in interest to another of the 3rd century
 
 *) See pp. 14, 15, and n. 65, pp. 85, 86.
 
-[Fig. 4. --- Hittite Draped Altar-Pedestal: Fraktin.]()
+[Fig. 4. --- Hittite Draped Altar-Pedestal: Fraktin.](https://cdn.solaranamnesis.com/HAStrong/strong-05.png)
 
 Further instructive details with regard to these deities are given by Macrobius, and we may appropriately quote from him the following significant passage*:--- "The Syrians give the name _Adad_ to the god, which they revere as first and greatest of all; his name signifies 'The One.' They honour this god as all powerful, but they associate with him the goddess named _Adargatis_, and assign to these two divinities supreme power over everything, recognizing in them _the sun_ and _the earth_. Without expressing by numerous names the different aspects of their power, their predominance is implied by the different attributes assigned to the two divinities. For the statue of _Adad_ is encircled by descending rays, which indicate that the force of heaven resides in the rays which the sun sends down to earth: the rays of the statue of _Adargatis_ rise upwards, a sign that the power of the ascending rays brings to life everything which the earth produces. Below this statue are the figures of lions, emblematic of the earth; for the same reason that the Phrygians so represent the Mother of the gods, that is to say, the earth, borne by lions." The character, then, of the god and goddess in the sanctuary of the temple, the heart of the cult, remained still the same in the fourth century A. D. as it had been in the beginning. The words which Macrobius uses would be equally descriptive of the special attributes of the Hittite Sun-God and the Hittite Earth-Goddess, which we have described, and the reference to Cybele of Phrygia is also significant.* There is indeed a faint memory in tradition of a son to Atargatis,* corresponding to the youthful companion of the Hittite goddess at Boghaz-Keui, and hence doubtless to the "Tammuz" and "Attis" of the various legends; and in one of the effigies at Hierapolis it is possible to see a later aspect of this deity corresponding to the Hittite Sandan-Hercules of Ivrîz.*
 
@@ -236,9 +238,9 @@ If any doubt remained as to the historical origins of the cult at Hierapolis, it
 
 *) See our Fig. 5, and frontispiece, No. 2. Publ. _Num. Chron._, p. 105, No. 5. _Choix de Mon. Grecq_, pl. 11. 24; _Rev. Arch._ (1904), 2., pl. 240, Fig. 24 (photo).
 
-[Fig. 5a. --- Atargatis, the Syrian Goddess. Coin of Hierapolis, Date B. C. 332. (Now in the Bibl. Nationale, Paris.) Scale 3:2.]()
+[Fig. 5a. --- Atargatis, the Syrian Goddess. Coin of Hierapolis, Date B. C. 332. (Now in the Bibl. Nationale, Paris.) Scale 3:2.](https://cdn.solaranamnesis.com/HAStrong/strong-06a.png)
 
-[Fig. 5b. --- Abd-Hadad, the Priest-King. Coin of Hierapolis, Date B. C. 332. (Now in the Bibl. Nationale, Paris.) Scale 3:2.]()
+[Fig. 5b. --- Abd-Hadad, the Priest-King. Coin of Hierapolis, Date B. C. 332. (Now in the Bibl. Nationale, Paris.) Scale 3:2.](https://cdn.solaranamnesis.com/HAStrong/strong-06b.png)
 
 In short, the words of Macrobius, which corroborate and amplify Lucian's description of the central cult at Hierapolis, are strictly apposite to the chief Hittite god and goddess. The coins of the site illustrate the same motive; and on one of the earliest of them features of Hittite costume are found still surviving four hundred years after the final overthrow of the Hittite States in Northern Syria.
 
@@ -340,7 +342,7 @@ I saw too at Byblos a large temple,* sacred to the Byblian Aphrodite*: this is t
 
 *) A custom of similar character commonly attached itself to the worship of the Great Mother in her various forms (_cf._ Herod. 1. 199; Strabo, 15. 1. 20), being regarded as an honourable devotion to her service (Strabo, 11. 14. 16); it was obligatory in Lydia (Herodotus, 1. 93). _Cf._, _inter alia_, Ramsay, _Cities and Bishoprics of Phrygia_, 1. 94, 115; Cumont, in _Pauly's Real-Encyclopädie_ (Wissowa), 1901, 4., Dea Syria, col. 2242; Frazer, _Fortnightly Review_, Dec., 1904, p. 985. For the survival of the custom on old Hittite sites, _cf._ Strabo, 12. 3. 32, 34, 36; _ibid._ 2. 3, _etc._). Belin de Ballu, _Œuvres de Lucien_, 5. p. 141, n. 1, cites a similar custom obligatory before marriage (Chez les Angiles, peuples d'Afrique, dont parla Pomponius Méla, 54. 1, ch. 8). _Cf._ also the comprehensive review of the question by Farnell, _Greece and Babylon_, p. 269 ff, and the valuable _résumé_ by Cumont in his _Religions Orientales_, p. 359, n. 41. The significance of the connection with a stranger as a relic of exogamy is discussed by Perrot and Chipiez, _Histoire de l'Art, Phénicie_, pp. 258-261, and developed by S. Reinach, _Myth. Cultes_, 1. (1905), p. 79. But _cf._ Frazer, _Adonis_, _etc._, p. 50 ff.
 
-[Fig. 6. --- Temple at Byblos. _B. M. Cat. Coins, Phœn. Byb._ 32. Date A. D. 217-8.]()
+[Fig. 6. --- Temple at Byblos. _B. M. Cat. Coins, Phœn. Byb._ 32. Date A. D. 217-8.](https://cdn.solaranamnesis.com/HAStrong/strong-07.png)
 
 ### 7. Legend of Osiris at Byblos.
 
@@ -503,7 +505,7 @@ But the temple within is not uniform. A special sacred shrine is reared within i
 
 *) See the design upon the remarkably instructive coin now at Vienna, reproduced in Fig. 7. On the identification of "Hera," the lion goddess, and "Zeus," the bull-god, in the Hittite pantheon, see Introduction, pp. 8 ff., and Figs. 2, 3, 4. Macrobius speaks of them as "Hadad" and "Atargatis," names confirmed by inscriptions found at Delos. Lucian's description of the sanctuary, with its common shrine of "Hera" and "Zeus," and the details by which he distinguishes these deities, form the basis of our argument in the Introduction, that this god and goddess are identical with the chief Hittite male and female deities, who are "mated" in the sculptures at Yasily Kaya. The historical inference is that the origins of the temple date from the period of Hittite supremacy; and this conclusion is in seeming agreement with what Lucian says in § 17 of the antiquity of the original temple. Subsequently, as the Hittite power declined, their god lost predominance, and the cult of the Mother Goddess developed its local tendencies. The rites and institutions in the worship at Hierapolis which Lucian now proceeds to describe are naturally those of his own time, but here and there (as in §§ 44, 47) traces of the original dual nature of the cult may be detected.
 
-[Fig. 7. --- The God and Goddess of Hierapolis. (From a Coin of the 3rd cent. A. D.). Scale 2:1.]()
+[Fig. 7. --- The God and Goddess of Hierapolis. (From a Coin of the 3rd cent. A. D.). Scale 2:1.](https://cdn.solaranamnesis.com/HAStrong/strong-08.png)
 
 ### 32. Comprehensive Character of the Goddess.
 
@@ -511,7 +513,7 @@ Hera, however, as you look at her will recall to you a variety of forms. Speakin
 
 *) This description of the effigy distinguishes the original goddess from the naked or partly clad goddess, with hands to her breasts, with which she is commonly identified in later symbolism and modern interpretation. It accords, moreover, well with the pictures of the goddess upon coins, on which she is always fully clothed and usually girdled. (See Introduction; also Frontispiece and Figs. 5, 7.) For a familiar aspect of Rhea (Kybele) see our illustration, Fig. 8, taken from a Roman lamp, published in Smith's _Small. Class. Dict._ --- Rhea. A similar design appears on several lamps in the British Museum. For the girdle in Hittite art, see _L. H._, p. 112 (Marash), p. 127 (Carchemish), _etc._
 
-[Fig. 8. --- The Phrygian Goddess (Kybele) in the West. (From a Roman Lamp.)]()
+[Fig. 8. --- The Phrygian Goddess (Kybele) in the West. (From a Roman Lamp.)](https://cdn.solaranamnesis.com/HAStrong/strong-09.png)
 
 ### 33. Object between the God and Goddess.
 

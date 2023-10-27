@@ -440,84 +440,118 @@ I saw also the effigy of Helen, and of Hecuba, and of Andromache, and of Paris, 
 
 In the great court oxen of great size browsed; horses, too, are there, and eagles and bears and lions, who never hurt mankind but are all sacred and all tame.*
 
-### 42. 
+### 42. The Priests and Temple Attendants. Rites and Ceremonies.
 
 Many priests also are in attendance, some of whom sacrifice the victims, others bring libations, others are called fire-bearers, and others altar attendants. In my presence more than 300 of these were present at a sacrifice; all had vestments of white and wore caps on their heads. Every year a new high priest is appointed.* He, and he alone, is clad in purple and crowned with a golden tiara.
 
-### 43.
+### 43. The Priests and Temple Attendants. Rites and Ceremonies.
 
 Besides this there is another multitude of holy men, pipers, flute players,* and Galli; and women frenzied and fanatic.*
 
-### 44.
+### 44. The Sacrifices.
 
 A sacrifice is offered up twice every day, and they are all present at this. To Zeus they sacrifice in silence, neither chanting nor playing, but when they sacrifice to Hera they sing, they pipe, and shake rattles. About this ceremony they could tell me nothing certain.*
 
-### 45.
+### 45. Sacred Lake and Fishes.
 
 There is too a lake* in the same place, not far from the temple in which many sacred fishes of different kinds are reared.* Some of these grow to a great size; they are called by names, and approach when called. I saw one of these ornamented with gold, and on its back fin a golden design was dedicated to the temple. I have often seen this fish, and he certainly carried this design.
 
-### 46.
+### 46. Sacred Lake and Fishes.
 
 The depth of the lake is immense. I never tested it myself, but they say that it is in depth more than 200 fathoms. In the midst of this lake stands an altar of stone. You would think at first sight that it was floating and moving in the water, and many deem that it is so. The truth seems to me that it is supported by a column of great size, based on the bottom of the lake. It is always decked with ribbons, and spices are therein, and many every day swim in the lake with crowns on their heads performing their acts of adoration.
 
-### 47.
+### 47. Ceremony at the Lake.
 
 At this lake great assemblies meet, and these are called descents into the lake because all their deities go down into this lake, amongst whom Hera* first advances so that Zeus may not see the fish first, for if this were to happen they say that one and all would perish. And Zeus comes indeed intending to see these fish, but she, standing before him, keeps hint at bay, and with many supplications holds him off.
 
-### 48.
+### 48. Ceremony at the Euphrates ("The Sea").
 
 But the greatest of these sacred assemblies are those held on the sea coast.* About these, however, I have nothing certain to say. I was never present at their celebrations, nor did I undertake the journey thither; but I did see what they do on their return, and I will at once tell you. Each member of the assembly carries a vessel full of water. The vessels are sealed with wax; those who carry the water do not unseal the vessels and then pour out the water; but there is a certain holy cock* who dwells hard by the lake. This bird, on receiving the vessels from the bearers, inspects the seal, and after receiving a reward for this action he breaks the thread and picks away the wax, and many minae are collected by the cock by this operation. After this the bearers carry the water into the temple and pour it forth, and they depart when the sacrifice is finished.
 
-### 49.
+### 49. Festival of the Pyre. Customs and Institutions.
 
 The greatest of the festivals that they celebrate is that held in the opening of spring; some call this the Pyre, others the Lamp. On this occasion the sacrifice is performed in this way. They cut down tall trees and set them up in the court; then they bring goats and sheep and cattle and hang them living to the trees; they add to these birds and garments and gold and silver work. After all is finished, they carry the gods around the trees and set fire under;* in a moment all is in a blaze. To this solemn rite a great multitude flocks from Syria and all the regions around. Each brings his own god and the statues which each has of his own gods.
 
-### 50.
+### 50. The Galli.
 
 On certain days a multitude flocks into the temple, and the Galli in great numbers, sacred as they are, perform the ceremonies of the men and gash their arms and turn their backs to be lashed.* Many bystanders play on the pipes the while many beat drums; others sing divine and sacred songs. All this performance takes place outside the temple, and those engaged in the ceremony enter not into the temple.
 
-### 51.
+### 51. Their Initiation Ceremonies.
 
 During these days they are made Galli. As the Galli sing and celebrate their orgies, frenzy falls on many of them and many who had come as mere spectators afterwards are found to have committed the great act. I will narrate what they do. Any young man who has resolved on this action, strips off his clothes, and with a loud shout bursts into the midst of the crowd, and picks up a sword from a number of swords which I suppose have been kept ready for many years for this purpose. He takes it and castrates himself* and then runs wild through the city, bearing in his hands what he has cut off. He casts it into any house at will, and from this house he receives women's raiment and ornaments.* Thus they act during their ceremonies of castration.
 
-### 52.
+### 52. Their Burial.
 
 The Galli, when dead, are not buried like other men, but when a Gallus dies his companions carry him out into the suburbs, and laying him out on the bier on which they had carried him they cover him with stones, and after this return home. They wait then for seven days, after which they enter the temple. Should they enter before this they would be guilty of blasphemy.
 
-### 53.
+### 53. Their Burial.
 
 The laws which they observe are the following: Anyone who has seen a corpse may not enter the temple the same day; but afterwards, when he has purified himself, he enters. But those who are of the family of the corpse wait for thirty days, and after shaving their heads they enter the temple, but before they have done this it is forbidden.
 
-### 54.
+### 54. Animals used in Sacrifice. Sanctity of the Dove.
 
 They sacrifice bulls and cows alike and goats and sheep;* pigs alone, which they abominate, are neither sacrificed nor eaten. Others look on swine without disgust, but as holy animals.* Of birds the dove seems the most holy to them,* nor do they think it right to harm these birds, and if anyone have harmed them unknowingly they are unholy for that day, and so when the pigeons dwell with the men they enter their rooms and commonly feed on the ground.
 
-### 55.
+### 55. Tonsure and other Customs of Pilgrims.
 
 I will speak, too, about those who come to these sacred meetings and of what they do. As soon as a man comes to Hierapolis he shaves his head and his eyebrows;* afterwards he sacrifices a sheep* and cuts up its flesh and eats it; he then lays the fleece on the ground, places his knee on it, but puts the feet and head of the animal on his own head and at the same time he prays that the gods may vouchsafe to receive him, and he promises a greater victim hereafter. When this is performed he crowns his head with a garland and the heads of all those engaged in the same procession. Starting from his house he passes into the road, previously bathing himself and drinking cold water. He always sleeps on the ground, for he may not enter his bed till the completion of his journey.
 
-### 56.
+### 56. Tonsure and other Customs of Pilgrims.
 
 In the city of Hierapolis a public host receives him, suspecting nothing, for there are special hosts attached to each city, and these receive each guest according to his country. These are called by the Assyrians teachers, because they teach them all the solemn rites.
 
-### 57.
+### 57. Method of Sacrifice. The Libation.
 
 They sacrifice victims not in the temple itself, but when the sacrificer has placed his victim at the altar and poured a libation* he brings the animal home alive, and returning to his own house he slays his victim and utters prayers.
 
-### 58.
+### 58. Human Sacrifice.
 
 There is also another method of sacrifice, as follows: They adorn live victims with ribbons and throw them headlong down from the temple's entrance, and these naturally die after their fall. Some actually throw their own children down, not as they do the cattle, but they sew them into a sack and toss them down, visiting them with curses and declaring that they are not their children, but are cows.*
 
-### 59.
+### 59. Tattoo.
 
 They all tattoo themselves --- some on the hands and some on the neck --- and so it comes that all the Assyrians bear stigmata.*
 
-### 60.
+### 60. Sacrifice of Hair.
 
 They have another curious custom, in which they agree with the Trœzenians alone of the Greeks. I will explain this too. The Trœzenians have made a law for their maidens and youths alike never to marry till they have dedicated their locks to Hippolytus; and this they do. It is the same at Hierapolis. The young men dedicate the first growth on their chin, then they let down the locks of the maidens, which have been sacred from their birth; they then cut these off* in the temple and place them in vessels, some in silver vessels, some in gold, and after placing these in the temple and inscribing the name on the vessel they depart. I performed this act myself when a youth, and my hair remains still in the temple, with my name on the vessel.
 
 # Appendix.
 
 ## Extract 1.
+
+From _Maundrell's Travels_. Page 153 (6th ed. 1749).
+
+An Account of the Author's Journey to the Banks of the Euphrates, _etc._, in his "Journey from Aleppo to Jerusalem." 1697.
+
+_Wednesday, April 19th._
+
+We went east and by north, and in four hours arrived at Bambych. This place has no remnants of its ancient greatness, but its walls, which may be traced all round, and cannot be less than three miles in compass. Several fragments of them remain on the east side, especially at the east gate; and another piece of eighty yards long, with towers of large square stone extremely well built. On the north side I found a stone with the busts of a man and woman, large as life; and under, two Eagles carved on it. Not far from it, on the side of a large well, was fixed a stone with three figures carved on it, in Basso Relievo. They were two Syrens, which twining their fishy tails together, made a seat, on which was placed sitting a naked woman, her arms and the Syrens on each side mutually entwined.
+
+On the west side is a deep pit of about 100 yards diameter. It was low, and had now water in it, and seemed to have had great buildings all round it; with the pillars and ruins of which, it is now in part filled up; but not so much, but that there was still water in it. Here are a multitude of subterraneous aqueducts brought to the city; the people attested no fewer than fifty. You can ride nowhere about the city, without seeing them. We pitched by one about a quarter of a mile east of the city, which yields a fine stream; and emptying itself into a valley, waters it, and makes it extremely fruitful. Here perhaps were the pastures of the beasts designed for sacrifices. Here are now only a few poor inhabitants, tho' anciently all the north side was well inhabited by Saracens; as may be seen by the remains of a noble Mosque and a Bagnio a little without the walls.
+
+## Extract 2.
+
+Pocock's Description of the East. Vol. 2., Pt. 1. (1745); pp. 166 and 167.
+
+...Bambouch, commonly called by the Franks Bambych, and by the ancients Hierapolis, which was the Greek name that was given it by Seleucus; it was called also Bambyce, which seems to be the Syrian name still retained; and it is very remarkable that Hierapolis in Asia Minor has much the same name, being called Pambouk Calasi (the cotton castle). The Tables make it twenty-four miles distant from Zeuma on the Euphrates and from Ceciliana: They place it also seventy-two miles from Berya, though this is not above fifty from Aleppo. One of the Syrian names of this place was Magog;* which was a city of the Cyrrhestica, and is situated at the south end of a long vale, which is about a quarter of a mile broad, watered with a stream that is approached by the aqueducts of Bambych; and, to preserve the water from being wasted, it passes through this vale in an artificial channel or aqueduct which is built of stone on a level with the ground. The form of this site was irregular; some parts of the walls which remain entire, are nine feet thick, and above thirty feet high; they are cased with hewn stone both inside and out, and are about two miles in circumference; there was a walk all round on top of the walls, to which there is an ascent by a flight of stairs, which are built on arches; the wall is defined by towers on five sides, at the distance of fifty paces from each other, and there is a low fosse without the walls. The four gates of the city are about fifteen feet wide, and defended by a semi-circular tower on each side; the water that supplied the town, as I was informed, comes from a hill about twelve miles to the south, and the city being on the advanced ground, the water runs in a channel, which is near twenty feet below the surface of the earth, and in several parts of the city there are holes down to the water about five feet wide, and fifteen long, with two stones across, one about five feet, the other about ten feet from the top, in order, as may be supposed, to facilitate the descent of the water; it is probable that they had some machines to draw up the water at these holes. In the side of one of them I saw a stone about four feet long, and three wide, on which there was a relief of two winged persons holding a sheet behind a woman a little over her head; they seem to carry her on their fishy tails which join together, and were probably designed to represent the Zephyrs, carrying Venus to the sea.
+
+At the west part of the town there is a dry bason, which seemed to have been triangular; it is close to the town wall; at one corner of it there is a round building which seems to have extended into a bason, and probably was designed in order to behold with greater conveniency some religious ceremonies or public sports. This may be the lake where they had sacred fishes that were tame.
+
+About two hundred paces within the east gate there is a raised ground, on which probably stood a temple of the Syrian goddess Atargatis, thought to be the same as Ashteroth of the Sidonians, and Cybele of the Romans, for whose worship this place was so famous. I conjectured it to be about two hundred feet in front. It is probable that this is the high ground from which they threw people headlong in their religious ceremonies, and sometimes even their own children, though they must inevitably perish. I observed a low wall running from it to the gate, so that probably it had such a grand avenue as the temple at Gerrhae; and the enclosure of the city is irregular in this part, as if some ground had been taken in after the building of the walls to make that grand entrance; it is probable that all the space north of the temple belonged to it. A court is mentioned to the north of the temple, and a tower likewise before the temple, which was built on a terrace twelve feet high. If this tower was on the high ground I mentioned, the temple must have been west of it, of which I could see no remains; it possibly might have been where there are now some ruins of a large building, which seems to have been a church with a tower; to the west of which there are some ruinous arches, which might be part of a portico. It is said that not only Syria, Cilicia, and Cappadocia, contributed to the support of this temple, but even Arabia, and the territories of Babylon: To the west of the town there is a high ground, and some burial places; and so there are also to the north-east, where I saw inscriptions in the oriental languages, and several crosses. At a little distance from the north-east corner of the town there is a building like a church, but within it there is some Gothic work, such as is seen in ancient mosques; and there is a room on each side of the south end; the whole is ruinous, but very strongly built, and they call it the house of Phila.
+
+## Extract 3.
+
+The Expedition to the Euphrates and Tigris.
+
+By Colonel Chesney. London, 1850. Vol. 1., Ch. 18., pp. 420 and 421.
+
+[Nine miles below the mouth of the Sajur, the fine Saracenic structure of Kal-at-en-Nejm commands the remains of the great Zeugma leading to Seroug, Haran, _etc._, and 11 miles directly south by west from thence on four hills, are the extensive remains of the castle and town of Kara Bambuche, or Buyuk Munbedj,* which contains some fine excavations near the river, and also a Zeugma, but in a more dilapidated state, being without the slopes which, when passing at Kal-at-en-Nejm, served for landing places at different heights of the river.]
+
+Sixteen miles west by south of the latter, and 11 1/2 miles south-west of the former passage, at about 600 feet above the river Euphrates, the ruins of the Magog of the Syrians occupy the centre of a rocky plain, where, by its isolated position, the city must not only have been deprived of running water, but likewise of every other advantage which was likely to create and preserve a place of importance. Yet we know that the Syrian city of Ninus Vetus* flourished under the name of Bambyce* and subsequently of Hierapolis,* or the Sacred City of the Greeks,* and that it contained the rich temple which was plundered by Crassus;* finally it bore the name of Munbedj* or Bambuche, and had a succession of sovereigns in the 5th century of the Hijrah.* The ancient city was near the eastern extremity of Commagene, or Euphratensis, which had Samosat at the opposite extremity.*
+
+Some ruined mosques and square Saracenic towers, with the remains of its surrounding walls and ditch, marked the limits of the Muslim city; within which are four large cisterns, a fine sarcophagus, and, among other ancient remains the sculptured ruins of an acropolis, and those of two temples. Of the smaller, the enclosure and portions of seven columns remain; but it seems to possess little interest compared with the larger, which may have been that of the Assyrian and Phœnician Astarte,* or Astroarche (queen of stars), which afterwards became the Syrian Atargatis,* or Venus Decerto.* Amongst the remains of the latter are some fragments of massive architecture, not unlike the Egyptian, and 11 arches from one side of a square paved court, over which are scattered the shafts of columns and capitals displaying the lotus.
+
+A little way westward of the walls there is an extensive necropolis, which contains many Turkish, with some Pagan, Seljukian, and Syriac tombs; the last having some almost illegible inscriptions in the ancient character.
 
 ...

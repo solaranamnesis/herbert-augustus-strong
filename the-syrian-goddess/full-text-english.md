@@ -340,4 +340,184 @@ There is, however, another sacred story which I had from the lips of a wise man 
 
 I approve of the remarks about the temple made by those who in the main accept the theories of the Greeks: according to these the goddess is Hera, but the work was carried out by Dionysus,* the son of Semele: Dionysus visited Syria on his journey to Aethiopia. There are in the temple many tokens that Dionysus was its actual founder: for instance, barbaric raiment, Indian precious stones, and elephants' tusks brought by Dionysus from the Aethiopians. Further, a pair of phalli of great size are seen standing in the vestibule, bearing the inscription, "I, Dionysus, dedicated these phalli to Hera my stepmother." This proof satisfies me. And I will describe another curiosity to be found in this temple, a sacred symbol of Dionysus. The Greeks erect phalli in honour of Dionysus, and on these they carry, singular to say, mannikins made of wood, with enormous pudenda; they call these puppets. There is this further curiosity in the temple: as you enter, on the right hand, a small brazen statue meets your eye of a man in a sitting posture, with parts of monstrous size.
 
+### 17. Rebuilt by Stratonice.
+
+These are the legends concerning the founders of the temple. I will proceed to speak of the edifice itself and its position: how it was built and who built it. They affirm that the temple as it exists now is not that which was built originally: the primitive temple fell to pieces in the course of time: the present one they say was the work of Stratonice, the wife of the king of the Assyrians.* This I take to be the Stratonice of whom her stepson was enamoured, and the skill of a doctor detected the intrigue: for the lover, overpowered by the malady of his passion, bewildered by the thought of his shameful caprice, lay sick in silence. He lay sick, and though no ache was in any limb, yet his colour was gone, and his frame was growing frailer day by day. The doctor, seeing that he was suffering from no definite disease, perceived that his malady was none other than love. Many are the symptoms of secret love: languor of vision, change in the voice and complexion, and frequent tears. The doctor, aware of this, acted as follows: he laid his hand on the heart of the young man, and summoned all the domestics in the household. The patient remained tranquil and unmoved on the entrance of the rest, but when his stepmother came in he grew pale and fell to sweating and trembling, and his heart beat violently. These symptoms betrayed his passion to the doctor.
+
+### 18. Rebuilt by Stratonice.
+
+The doctor proceeded to adopt the following cure: Summoning the young man's father, who was racked by anxiety, he explained to him that the young man's malady was no normal malady, but a wrongful action: "he has no painful symptoms; he is possessed by love and madness. He longs to possess what he will never obtain; he loves my wife, whom I will never give up." This was the trick of the wise physician. The father straightway begged the doctor by his prudence and professional skill not to let his son perish. "His malady depended not on his will; it was involuntary. Pray then do not you let your jealousy bring grief on the whole realm, and do not, dear doctor, draw unpopularity on your profession." Such was the unwitting father's request. The doctor replied: "Your request is scandalous. You would deprive me of my wife and outrage the honour of a medical man. I put it to you, what would be your conduct, since you are deprecating mine, if your wife were the object of his guilty love?" He replied that he would not spare his own wife nor would he begrudge his son his life, even though that son were enamoured of his own stepmother: losing one's wife was a less misfortune than losing one's son. The doctor on hearing this said: "Why then offer me these entreaties? In good truth, your wife is the object of his love. What I said to you was all a made-up story." The father followed this advice, and handed over his wife and his kingdom to his son, and he himself departed into the region of Babylonia and founded a city on the Euphrates which bore his name: and there he died. Thus it was that our wise doctor detected and cured the malady.
+
+### 19. Story of Stratonice and Combabus. Description of the Temple and Shrines.
+
+Now this Stratonice, when still married to her former husband, saw in a vision Hera exhorting her to rear a temple to this goddess at Hierapolis. Should she neglect to obey, she was menaced by the goddess with manifold evils. The queen began by disregarding the dream, but later, when seized by a dangerous illness, she told the vision to her husband, and appeased Hera, and undertook to raise the temple. Hardly had she recovered when she was despatched by her husband to Hierapolis, and a large sum of money with her, and a large army too, partly to aid in the building operations and partly to ensure her safety. He summoned one of her friends called Combabus, a young man of handsome presence, and said, "Combabus, I know thee for an honest man, and of all my friends I love thee best, and I commend thee greatly alike for thy wisdom and for thy goodwill which thou hast shown to us. At the present moment I have need of all thy confidence, and thus I wish thee to accompany my wife, and to carry out my work, and to perform the sacrifices due, and to command my army. On my return great honour shall fall to thee. Combabus begged and prayed not to be despatched, and not to be entrusted with matters far above his powers --- moneys, the lady, the holy work: not merely so, but he feared lest in the future some jealousy might make itself felt as to his relations with Stratonice, as he was unaccompanied should he consent to escort her.
+
+### 20. Story of Stratonice and Combabus. Description of the Temple and Shrines.
+
+The king, however, refused to be moved; so Combabus prayed as an alternative that a respite of seven days might be granted him: after that interval he was willing to be despatched after attending to his immediate needs. On obtaining this respite, which was willingly granted, he departed to his house, and throwing himself on the ground, he thus deplored his lot: "Unhappy me! Why this confidence in myself? To what end is this journey, whose results I already see? I am young and the lady whom I escort is fair. This will prove a great and mighty disaster, unless I remove entirely the cause of the evil. Thus I must even perform a mighty deed which will heal all my fears." Saying this he unmanned himself, and he stowed away the mutilated pudenda in a little vessel together with myrrh and honey and spices of various sorts. He sealed this vessel up with a ring which he wore; and finally he proceeded to dress his wound. As soon as he deemed himself fit to travel he made his way to the king, and before a large company reached the vessel forth and spoke as follows: "Master! This my most precious treasure was stored up in my house, and I loved it well: but now that I am entering on a long journey, I will set it in thy keeping. Do thou keep it well: for it is dearer to me than gold and more precious to me than life. On my return I shall receive it again." The king was pleased to receive the vessel, and after sealing it with another seal he entrusted it to his treasurers to keep.
+
+### 21. Story of Stratonice and Combabus. Description of the Temple and Shrines.
+
+So Combabus from this time forth continued his journey in peace. Arrived at Hierapolis they built the temple with all diligence, and three years passed while they were at their task. Meantime the event came to pass which Combabus had feared. Stratonice began to love him who had been her companion for so long a time: her love passed into an overpowering passion. Those of Hierapolis affirm that Hera was the willing cause of this trouble: she knew full well that Combabus was an upright man, but she wished to wreak her wrath on Stratonice for her unwillingness to undertake the building of the temple.
+
+### 22. Story of Stratonice and Combabus. Description of the Temple and Shrines.
+
+The queen was at first coy and tried to hide her passion, but when her trouble left her no longer any repose, she openly displayed her irritation and wept the whole day long, and called out repeatedly for Combabus: Combabus was everything to her. At last, in despair at her impotency to master her passion, she sought a suitable occasion for supplicating his love. She was too cautious to admit her passion to a stranger, but her modesty prevented her from facing the situation. Finally she hits on this plan; that she should confront him after she should have drunk deeply of wine; for courage rises after drinking and a repulse seems then less degrading, and actions performed under the influence of wine are set down to ignorance. Thus she acted as she thought best. After supper she entered the chamber in which Combabus dwelt, and besought him, embracing his knees, and she avowed her guilty love. He heard her words with disgust and rejected her advances, reproaching her with drunkenness. She, however, threatened that she would bring on him a great calamity; on which he trembled, and he told her all his story and narrated all that he had done and finally disclosed to her the manifest proofs of his statement. When the queen witnessed this unexpected proof her passion indeed was quenched, but she never forgot her love, but in all her intercourse she cherished the solace of her unavailing affection. The memory of this love is still alive at Hierapolis and is maintained in this way; the women still are enamoured of the Galli, and the Galli again love the women with passion; but there is no jealousy at all, and this love passes among them for a holy passion.
+
+### 23. Story of Stratonice and Combabus. Description of the Temple and Shrines.
+
+The king was well informed by Stratonice as to her doings at Hierapolis, for many who came thence brought the tale of her doings. The monarch was deeply moved by the tidings, and before the work was finished summoned Combabus to his presence. Others narrate with respect to this a circumstance wholly untrue; that Stratonice finding her prayers repulsed wrote with her own hand to her husband and accused Combabus of making an attempt upon her modesty; and what the Greeks allege about their Stheneboea and about Phaedra the Cnosian the Assyrians tell in the same way about Stratonice. For my part I do not believe that either Stheneboea nor Phaedra acted thus if Phaedra really loved Hippolytus. However, let the old version remain for what it is worth.
+
+### 24. Story of Stratonice and Combabus. Description of the Temple and Shrines.
+
+When, however, the news was brought to Hierapolis, Combabus took count of the charge and departed in a spirit of full confidence, conscious that the visible proof necessary for his defence had been left in the city his home. On his arrival the king immediately put him in prison under strict guard. Then in the presence of the friends of the accused who had been present when Combabus was commissioned to depart, the king summoned him into open court and began to accuse him of adultery and evil lust; and deeply moved, recounting the confidence he had reposed in his favourite and his long friendship, he arraigned Combabus on three distinct charges: first, that he was an adulterer, secondly, that he had broken his trust, finally, that he had blasphemed the goddess by acting thus while engaged in her service. Many of the bystanders bore witness against him, saying that they had seen the guilty pair embracing. It was finally agreed that Combabus was worthy of death as his evil deeds had merited.
+
+### 25. Story of Stratonice and Combabus. Description of the Temple and Shrines.
+
+He had stood up to this point in silence, but as he was being led to his fate, he spoke out, and demanded the restoration of his pledge, affirming that he was to be killed not for rebellious conduct against his king, nor for any violation of the king's married life, but solely because of the king's eagerness to possess what he had deposited at the royal court at his departure. The king thereon summoned his treasurer and bade him bring forth what he had committed to his custody. On its production, Combabus removed the seal and displayed the contents of the vessel, and showed how he himself had suffered thereby; adding, "This is just what I feared, O King, when thou didst send me on that errand: I left with a heavy heart, and I did my duty, constrained by sheer necessity. I obeyed my lord and master to mine own undoing. Such as I am, I stand accused of a crime which none but a man in every sense could have committed. The king cried out in amazement at these words, embraced Combabus and said with tears, "What great ruin, Combabus, hast thou wrought upon thyself? What monstrous deed of ill hast thou, alone of men, wrought to thy sorrow? I cannot praise thee, rash spirit, for enduring to suffer this outrage; would that thou hadst never borne it; would that I had never seen its proofs! I needed not this thy defence. But since the deity hath willed it thus, I will grant thee, first and foremost, as thy revenge, the death of the informers: and next there shall follow a mighty gift, a store of silver and countless gold, and raiment of Assyria, and steeds from the royal stud. Thou shalt enter freely to us unannounced and none shall withstand thee: none shall keep thee from my sight, even were I by my wife's side." Thus he spake, and thus he acted; the informers were led off straightway to their execution; Combabus was laden with gifts, and the king's attachment to him was increased. No one of the Assyrians was deemed equal in wisdom and in fortune to Combabus.
+
+### 26. Story of Stratonice and Combabus. Description of the Temple and Shrines.
+
+On his request that he might complete what was unfinished in the construction of the temple --- for he had left it unfinished --- he was despatched anew; and he completed the temple, and there he abode. To mark his sense of the virtue and good deeds of his architect, the king granted him a brazen statue of himself to stand in the temple of his construction. And even to the present day this brazen statue is seen standing in the temple, the work of Hermocles of Rhodes. Its form is that of a woman, but the garments are those of a man.* It is said, too, that his most intimate friends, as a proof of their sympathy, castrated themselves like him, and chose the same manner of life. Others there are who bring gods into the story and affirm that Combabus was beloved by Hera; and that it was she who inspired many with the idea of castrating themselves, so that her lover should not be the only one to lament the loss of his virility.
+
+### 27. Story of Stratonice and Combabus. Description of the Temple and Shrines.
+
+Meantime the custom once adopted remains even to-day, and many persons every year castrate themselves and lose their virile powers: whether it be out of sympathy with Combabus, or to find favour with Hera. They certainly castrate themselves, and then cease to wear man's garb; they don women's raiment and perform women's tasks.* I have heard the origin of this ascribed to Combabus as well, for the following event occurred to him. A certain foreign woman who had joined a sacred assembly, beholding a human form of extreme beauty and dressed in man's attire, became violently enamoured of him: after discovering that he was unsexed, she took away her life. Combabus accordingly in despair at his incapacity for love, donned woman's attire, that no woman in future might be deceived in the same way. This is the reason of the female attire of the Galli. Enough of Combabus and his story: in the course of my story I shall make mention of the Galli, and of their castration, and of the methods employed to effect it, and of the burial rites wherewith they are buried, and the reasons why they have no ingress to the temple; but before this I am inclined to speak of the site of the temple and of its size: and so I will even speak.
+
+### 28. Story of Stratonice and Combabus. Description of the Temple and Shrines.
+
+The place whereon the temple is placed is a hill:* it lies nearly in the centre of the city, and is surrounded by a double wall.* Of the two walls the one is ancient; the other is not much older than our own times. The entrance to the temple faces the north; its size is about a hundred fathoms.* In this entrance those phalli stand which Dionysus erected:* they stand thirty fathoms high. Into one of these a man mounts twice every year, and he abides on the summit of the phallus for the space of seven days. The reason of this ascent is given as follows: The people believe that the man who is aloft holds converse with the gods, and prays for good fortune for the whole of Syria, and that the gods from their neighbourhood hear his prayers. Others allege that this takes place in memory of the great calamity of Deukalion's time, when men climbed up to mountain tops and to the highest trees, in terror of the mass of waters. To me all this seems highly improbable, and I think that they observe this custom in honour of Dionysus, and I conjecture this from the following fact, that all those who rear phalli to Dionysus take care to place mannikins of wood on the phalli; the reason of this I cannot say, but it seems to me that the ascent is made in imitation of the wooden mannikin.
+
+### 29. Story of Stratonice and Combabus. Description of the Temple and Shrines.
+
+To proceed, the ascent is made in this way; the man throws round himself and the phallus a small chain; afterwards he climbs up by means of pieces of wood attached to the phallus large enough to admit the end of his foot. As he mounts he jerks the chain up his own length, as a driver his reins. Those who have not seen this process, but who have seen those who have to climb palm trees in Arabia, or in Egypt, or any other place, will understand what I mean. When he has climbed to the top, he lets down a different chain, a long one, and drags up anything that he wants, such as wood, clothing, and vases; he binds these together and sits upon them, as it were, on a nest, and he remains there for the space of time that I have mentioned. Many visitors bring him gold and silver, and some bring brass; then those who have brought these offerings leave them and depart, and each visitor gives his name. A bystander shouts the name up; and he on hearing the name utters a prayer for each donor; between the prayers he raises a sound on a brazen instrument which, on being shaken, gives forth a loud and grating noise. He never sleeps; for if at any time sleep surprises him, a scorpion creeps up and wakes him, and stings him severely; this is the penalty for wrongfully sleeping. This story about the scorpion is a sacred one, and one of the mysteries of religion; whether it is true I cannot say, but, as it seems to me, his wakefulness is in no small degree due to his fear of falling. So much then for the climbers of the phalli. As for the temple, it looks to the rising sun.*
+
+### 30. Story of Stratonice and Combabus. Description of the Temple and Shrines.
+
+In appearance, and in workmanship, it is like the temples which they build in Ionia, the foundation rises from the earth to the space of two fathoms, and on this rests the temple. The ascent to the temple is built of wood and not particularly wide; as you mount, even the great hall exhibits a wonderful spectacle and it is ornamented with golden doors. The temple within is ablaze with gold and the ceiling in its entirety is golden. There falls upon you also a divine fragrance such as is attributed to the region of Arabia, which breathes on you with a refreshing influence as you mount the long steps, and even when you have departed this fragrance clings to you; nay, your very raiment retains long that sweet odour, and it will ever remain in your memory.
+
+### 31. The Inner Sanctuary. The Effigies.
+
+But the temple within is not uniform. A special sacred shrine is reared within it; the ascent to this likewise is not steep, nor is it fitted with doors, but is entirely open as you approach it. The great temple is open to all; the sacred shrine to the priests alone and not to all even of these, but only to those who are deemed nearest to the gods and who have the charge of the entire administration of the sacred rites. In this shrine are placed the statues, one of which is Hera, the other Zeus, though they call him by another name. Both of these are golden, both are sitting; Hera is supported by lions, Zeus is sitting on bulls. The effigy of Zeus recalls Zeus in all its details --- his head, his robes, his throne; nor even if you wished it could you take him for another deity.*
+
+### 32. Comprehensive Character of the Goddess.
+
+Hera, however, as you look at her will recall to you a variety of forms. Speaking generally she is undoubtedly Hera, but she has something of the attributes of Athene, and of Aphrodite, and of Selene, and of Rhea, and of Artemis, and of Nemesis, and of The Fates. In one of her hands she holds a sceptre, in the other a distaff; on her head she bears rays and a tower and she has a girdle wherewith they adorn none but Aphrodite of the sky.* And without she is gilt with gold, and gems of great price adorn her, some white, some sea-green, others wine-dark, others flashing like fire. Besides these there are many onyxes from Sardinia and the jacinth and emeralds, the offerings of the Egyptians and of the Indians, Ethiopians, Medes, Armenians, and Babylonians. But the greatest wonder of all I will proceed to tell: she bears a gem on her head called a Lychnis; it takes its name from its attribute. From this stone flashes a great light in the night-time, so that the whole temple gleams brightly as by the light of myriads of candles, but in the day-time the brightness grows faint; the gem has the likeness of a bright fire. There is also another marvel in this image: if you stand over against it, it looks you in the face, and as you pass it the gaze still follows you, and if another approaching from a different quarter looks at it, he is similarly affected.
+
+### 33. Object between the God and Goddess.
+
+Between the two there stands another image of gold, no part of it resembling the others. This possesses no special form of its own, but recalls the characteristics of other gods. The Assyrians themselves speak of it as a symbol, but they have assigned to it no definite name. They have nothing to tell us about its origin, nor its form: some refer it to Dionysus; others to Deukalion; others to Semiramis; for its summit is crowned by a golden pigeon,* and this is why they allege that it is the effigy of Semiramis. It is taken down to the sea twice in every year to bring up the water of which I have spoken.*
+
+### 34. The Sun God.
+
+In the body of the temple, as you enter, there stands on the left hand side, a throne for the Sun god; but there is no image upon it, for the effigies of the Sun and Moon are not exhibited. I have learnt, however, the reasons of this practice. They say that religion does not forbid making effigies of the other deities, for the outward form of these deities is known to all; but the Sun and Moon are plain for all to see, and all men behold them. What boots it, therefore, to make effigies of those deities who offer themselves for all to gaze on?
+
+### 35. A Bearded Apollo.
+
+Behind this throne stands an effigy of Apollo of an unusual character. All other sculptors think of Apollo as a youth, and represent him in the flower of his age. These artificers alone exhibit the Apollo of their statuary as bearded. They justify their action, and criticise the Greeks and others who set up Apollo as a boy, and appease him in that guise. Their reason is that it is a mark of ignorance to assign imperfect forms to the gods, and they look on youth as imperfection. They have also introduced another strange novelty in sculpture: they, and they alone, represent Apollo as robed.*
+
+### 36. Image of the God borne by the Priests in Divination.
+
+I have much to say about his works, and I will tell what is most worthy of admiration. First I will speak of the oracle. There are many oracles among the Greeks, and many, too, among the Egyptians, and again in Libya and in Asia there are many too. But these speak not, save by the mouth of priests and prophets: this one is moved by its own impulse, and carries out the divining process to the very end. The manner of his divination is the following: When he is desirous of uttering an oracle, he first stirs in his seat, and the priests straightway raise him up. Should they fail to raise him up, he sweats, and moves more violently than ever. When they approach him and bear him up,* he drives them round in a circle, and leaps on one after another. At last the high priest confronts him, and questions him on every subject. The god, if he disapproves of any action proposed, retreats into the background; if, however, he happens to approve it, he drives his bearers forward as if they were horses. It is thus that they gather the oracles, and they undertake nothing public or private without this preliminary. This god, too, speaks about the symbol, and points out when it is the due season for the expedition of which I spoke in connexion therewith.
+
+### 37. Image of the God borne by the Priests in Divination.
+
+I will speak of another wonder, too, which he performed in my presence. The priests were raising him aloft, but he left them on the ground, and was born aloft himself alone.
+
+### 38. Atlas and other Images.
+
+Behind Apollo is the statue of Atlas;* behind that, the statue of Hermes and Eilithyia.
+
+### 39. Atlas and other Images.
+
+Such, then, are the interior decorations of the temple; outside of it there stands a great altar of brass. It contains also countless other brazen effigies of kings and priests. I will mention those which seem most worthy of remembrance. To the left of the temple stands the image of Semiramis, pointing with her right hand to the temple. That image was erected to commemorate the following occurrence: The queen had issued a decree that all the Syrians should worship her as a deity, adding that they were to take no count of the others, not excepting even Hera; and they obeyed her decree. Afterwards, however, when disease and misfortune and grief were inflicted on her, she calmed down from her frenzied infatuation, and avowed herself a mere mortal, and ordered her subjects to turn again to Hera. This is why she stands to-day in this posture, pointing out Hera as the goddess whose grace is to be won, and confessing that she is not a goddess, but that Hera is indeed such.
+
+### 40. Atlas and other Images.
+
+I saw also the effigy of Helen, and of Hecuba, and of Andromache, and of Paris, and of Achilles. I saw also the statue of Nireus, the son of Aglaia, and of Philomela and Procne while yet women, and Tereus changed into a bird; and another effigy of Semiramis and one of Combabus and one of Stratonice of special beauty, and one of Alexander like to this. Sardanapalus stands by his side in a different form and in a different garb.
+
+### 41. Sacred Animals.
+
+In the great court oxen of great size browsed; horses, too, are there, and eagles and bears and lions, who never hurt mankind but are all sacred and all tame.*
+
+### 42. 
+
+Many priests also are in attendance, some of whom sacrifice the victims, others bring libations, others are called fire-bearers, and others altar attendants. In my presence more than 300 of these were present at a sacrifice; all had vestments of white and wore caps on their heads. Every year a new high priest is appointed.* He, and he alone, is clad in purple and crowned with a golden tiara.
+
+### 43.
+
+Besides this there is another multitude of holy men, pipers, flute players,* and Galli; and women frenzied and fanatic.*
+
+### 44.
+
+A sacrifice is offered up twice every day, and they are all present at this. To Zeus they sacrifice in silence, neither chanting nor playing, but when they sacrifice to Hera they sing, they pipe, and shake rattles. About this ceremony they could tell me nothing certain.*
+
+### 45.
+
+There is too a lake* in the same place, not far from the temple in which many sacred fishes of different kinds are reared.* Some of these grow to a great size; they are called by names, and approach when called. I saw one of these ornamented with gold, and on its back fin a golden design was dedicated to the temple. I have often seen this fish, and he certainly carried this design.
+
+### 46.
+
+The depth of the lake is immense. I never tested it myself, but they say that it is in depth more than 200 fathoms. In the midst of this lake stands an altar of stone. You would think at first sight that it was floating and moving in the water, and many deem that it is so. The truth seems to me that it is supported by a column of great size, based on the bottom of the lake. It is always decked with ribbons, and spices are therein, and many every day swim in the lake with crowns on their heads performing their acts of adoration.
+
+### 47.
+
+At this lake great assemblies meet, and these are called descents into the lake because all their deities go down into this lake, amongst whom Hera* first advances so that Zeus may not see the fish first, for if this were to happen they say that one and all would perish. And Zeus comes indeed intending to see these fish, but she, standing before him, keeps hint at bay, and with many supplications holds him off.
+
+### 48.
+
+But the greatest of these sacred assemblies are those held on the sea coast.* About these, however, I have nothing certain to say. I was never present at their celebrations, nor did I undertake the journey thither; but I did see what they do on their return, and I will at once tell you. Each member of the assembly carries a vessel full of water. The vessels are sealed with wax; those who carry the water do not unseal the vessels and then pour out the water; but there is a certain holy cock* who dwells hard by the lake. This bird, on receiving the vessels from the bearers, inspects the seal, and after receiving a reward for this action he breaks the thread and picks away the wax, and many minae are collected by the cock by this operation. After this the bearers carry the water into the temple and pour it forth, and they depart when the sacrifice is finished.
+
+### 49.
+
+The greatest of the festivals that they celebrate is that held in the opening of spring; some call this the Pyre, others the Lamp. On this occasion the sacrifice is performed in this way. They cut down tall trees and set them up in the court; then they bring goats and sheep and cattle and hang them living to the trees; they add to these birds and garments and gold and silver work. After all is finished, they carry the gods around the trees and set fire under;* in a moment all is in a blaze. To this solemn rite a great multitude flocks from Syria and all the regions around. Each brings his own god and the statues which each has of his own gods.
+
+### 50.
+
+On certain days a multitude flocks into the temple, and the Galli in great numbers, sacred as they are, perform the ceremonies of the men and gash their arms and turn their backs to be lashed.* Many bystanders play on the pipes the while many beat drums; others sing divine and sacred songs. All this performance takes place outside the temple, and those engaged in the ceremony enter not into the temple.
+
+### 51.
+
+During these days they are made Galli. As the Galli sing and celebrate their orgies, frenzy falls on many of them and many who had come as mere spectators afterwards are found to have committed the great act. I will narrate what they do. Any young man who has resolved on this action, strips off his clothes, and with a loud shout bursts into the midst of the crowd, and picks up a sword from a number of swords which I suppose have been kept ready for many years for this purpose. He takes it and castrates himself* and then runs wild through the city, bearing in his hands what he has cut off. He casts it into any house at will, and from this house he receives women's raiment and ornaments.* Thus they act during their ceremonies of castration.
+
+### 52.
+
+The Galli, when dead, are not buried like other men, but when a Gallus dies his companions carry him out into the suburbs, and laying him out on the bier on which they had carried him they cover him with stones, and after this return home. They wait then for seven days, after which they enter the temple. Should they enter before this they would be guilty of blasphemy.
+
+### 53.
+
+The laws which they observe are the following: Anyone who has seen a corpse may not enter the temple the same day; but afterwards, when he has purified himself, he enters. But those who are of the family of the corpse wait for thirty days, and after shaving their heads they enter the temple, but before they have done this it is forbidden.
+
+### 54.
+
+They sacrifice bulls and cows alike and goats and sheep;* pigs alone, which they abominate, are neither sacrificed nor eaten. Others look on swine without disgust, but as holy animals.* Of birds the dove seems the most holy to them,* nor do they think it right to harm these birds, and if anyone have harmed them unknowingly they are unholy for that day, and so when the pigeons dwell with the men they enter their rooms and commonly feed on the ground.
+
+### 55.
+
+I will speak, too, about those who come to these sacred meetings and of what they do. As soon as a man comes to Hierapolis he shaves his head and his eyebrows;* afterwards he sacrifices a sheep* and cuts up its flesh and eats it; he then lays the fleece on the ground, places his knee on it, but puts the feet and head of the animal on his own head and at the same time he prays that the gods may vouchsafe to receive him, and he promises a greater victim hereafter. When this is performed he crowns his head with a garland and the heads of all those engaged in the same procession. Starting from his house he passes into the road, previously bathing himself and drinking cold water. He always sleeps on the ground, for he may not enter his bed till the completion of his journey.
+
+### 56.
+
+In the city of Hierapolis a public host receives him, suspecting nothing, for there are special hosts attached to each city, and these receive each guest according to his country. These are called by the Assyrians teachers, because they teach them all the solemn rites.
+
+### 57.
+
+They sacrifice victims not in the temple itself, but when the sacrificer has placed his victim at the altar and poured a libation* he brings the animal home alive, and returning to his own house he slays his victim and utters prayers.
+
+### 58.
+
+There is also another method of sacrifice, as follows: They adorn live victims with ribbons and throw them headlong down from the temple's entrance, and these naturally die after their fall. Some actually throw their own children down, not as they do the cattle, but they sew them into a sack and toss them down, visiting them with curses and declaring that they are not their children, but are cows.*
+
+### 59.
+
+They all tattoo themselves --- some on the hands and some on the neck --- and so it comes that all the Assyrians bear stigmata.*
+
+### 60.
+
+They have another curious custom, in which they agree with the Trœzenians alone of the Greeks. I will explain this too. The Trœzenians have made a law for their maidens and youths alike never to marry till they have dedicated their locks to Hippolytus; and this they do. It is the same at Hierapolis. The young men dedicate the first growth on their chin, then they let down the locks of the maidens, which have been sacred from their birth; they then cut these off* in the temple and place them in vessels, some in silver vessels, some in gold, and after placing these in the temple and inscribing the name on the vessel they depart. I performed this act myself when a youth, and my hair remains still in the temple, with my name on the vessel.
+
+# Appendix.
+
+## Extract 1.
+
 ...

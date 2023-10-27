@@ -740,3 +740,73 @@ Some ruined mosques and square Saracenic towers, with the remains of its surroun
 *) Herod., lib. 1., 100. 105., mentions the temple of Venus at Askalon, which, in Diod. _Sic._, lib. 2., is called that of Decerto. There was another temple of Venus, or Atargatis, at Joppa. Plin., lib. 5., 100. 13. and 23.
 
 A little way westward of the walls there is an extensive necropolis, which contains many Turkish, with some Pagan, Seljukian, and Syriac tombs; the last having some almost illegible inscriptions in the ancient character.
+
+# Bibliography.
+
+[We have to thank Dr. Barnett, of the British Museum, for his courtesy in presenting us with the Bibliography of the translations and editions of Lucian.]
+
+### Greek and Latin.
+
+Luciani omnia quae extant, cum latina interpretatione (of J. Micyllus, M. Bolerus, D. Erasmus, _etc._). Paris, 1615. Fol.
+
+Luciani opera omnia, J. Benedictus emendavit. Salmurii, 1619. 8vo.
+
+Luciani Samosatensis opera, ex versione J. Benedicti. Cum notis J. Bourdelotii, _etc._ Amstelodami, 1687. 8vo.
+
+Luciani opera, cum nova versione T. Hemsterhusii et J. M. Gesneri, _etc._ Amstelodami, Trajecti ad Rhenum, 1743-6. 4to.
+
+Luciani opera, cum notis selectis. Curavit J. P. Schmidius. Leipzig, 1776-80. 8vo.
+
+Luciani opera ad editionem T. Hemsterhusii et J. F. Reitzii accurate expressa cum annotationibus. Biponti, 1789-93. 8vo.
+
+Luciani opera, castigata, edidit J. T. Lehmann. Lipsiae, 1822-31. 8vo.
+
+Luciani opera ex recensione G. Dindorfii. Parisiis, 1840. 8vo.
+
+Luciani opera ex recensione G. Dindorfii. Editio altera emendatior. Parisiis, 1867. 8vo.
+
+### Latin.
+
+Luciani opera, in latinum, partim diversis autoribus, partim per J. Micyllum, translata. Francofurti, 1543. Fol.
+
+### English.
+
+Lucian's works, translated from the Greek. By F. Spence. London, 1684-5. 8vo.
+
+The works of Lucian, translated from the Greek, by several eminent hands (T. Ferne, W. Moyle, Sir H. Sheere, A. Baden, C. Blount, T. Brown, J. Drake, S. Cobb, Gildon, Cashen, Vernon, Sprag, Hill, S. Atkinson, H. Blount, Ayloffe, J. Philips, L. Eachard, C. Eachard, Savage, J. Digby, H. Hare, J. Washington, N. Tate, and Sir J. Tyrell). With the life of Lucian, a discourse on his writings, and a character of some of the present translators, by J. Dryden. London, 1711. 8vo.
+
+The works of Lucian, from the Greek, by T. Francklin. London, 1780. 4to.
+
+Lucian, from the Greek, with the comments and illustrations of Wieland and others. By W. Tooke. London, 1820. 4to.
+
+The Works of Lucian of Samosata. Translated by H. W. Fowler and F. G. Fowler. Oxford, 1905.
+
+### French
+
+Les oeuvres de Lucien, traduites du grec, par F. Bretin. Paris, 1583. Fol.
+
+Lucian, de la traduction de N. Perrot, Sr. d'Ablancourt. Paris, 1654. 4to.
+
+Lucian, de la traduction de N. Perrot, Sr. d'Ablancourt. Paris, 1674. 8vo.
+
+Lucian, de la traduction de N. Perrot, Sr. d'Ablancourt. Amsterdam, 1709. 8vo.
+
+Oeuvres de Lucian, traduites du grec, avec des remarques, sur le texte, et la collation de six manuscrits de la Bibliothèque du Roi (by J. N. Belin de Ballu). Paris, 1789. 8vo.
+
+Oeuvres complètes. Traduction de Belin de Ballu, revue corrigée et complétée, par Louis Humbert. Paris, 1896.
+
+### German.
+
+Lucians von Samosata sämtliche Werke. Aus dem Griechischen übersetzt und mit Anmerkungen versehen von C. M. Wieland. Leipzig, 1788-9. 8vo.
+
+### Italian.
+
+Le opere di Luciano, volgarizzate da G. Manzi. Losanna, 1819. 8vo.
+
+### Spanish.
+
+Obras completas, traducidas, por D. C. Vidal y F. Delgado. Madrid, 1882, _etc._ 8vo.
+
+### Greek and English.
+
+Lucian. Literally and completely translated, from the Greek text of C. Jacobitz. (Athenian Society's Publications). London, 1895.
